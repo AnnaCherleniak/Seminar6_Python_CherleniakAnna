@@ -1,0 +1,1 @@
+# Seminar6_Python_CherleniakAnna
